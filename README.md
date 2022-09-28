@@ -4,4 +4,4 @@ Repositório criado para o desafio de projeto
 
 ## Links Uteis 
 
-(https://www.linkedin.com/in/kelly-lemos-b6b348b4/)
+https://www.linkedin.com/in/kelly-lemos-b6b348b4/
