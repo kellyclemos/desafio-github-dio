@@ -2,4 +2,4 @@
 
 ## Links Uteis 
 
-https://www.linkedin.com/feed/
+(https://www.linkedin.com/in/kelly-lemos-b6b348b4/)
